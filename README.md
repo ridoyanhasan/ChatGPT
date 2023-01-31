@@ -1,3 +1,3 @@
 # ChatGPT
 
-subscribe hablu programmer
+Ridoyan Hasan
